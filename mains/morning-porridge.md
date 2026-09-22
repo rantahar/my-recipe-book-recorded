@@ -9,4 +9,4 @@
 
 - Combine ingredients
 - Microwave 3.5 minutes
-- If not my microwave, it will probably spill
+- 600 watts
