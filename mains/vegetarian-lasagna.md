@@ -16,7 +16,7 @@
 - **2-3 cloves** garlic, minced
 - **1 tablespoon** olive oil
 - **Salt and pepper** to taste
-- **2 teaspoon** dried oregano or Italian seasoning
+- **1.5 teaspoon** dried oregano or Italian seasoning
 - **Fresh basil** for garnish (optional)
 
 
